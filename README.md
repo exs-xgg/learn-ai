@@ -15,3 +15,6 @@
 
 
 
+### Cool facts about the Home Credit PH AI Stream Sticker:
+1. This was AI Generated (Bing AI) - pretty cool, right?
+2. Did you notice that everything is awesome here, except for the letter E? We actually made a conscious decision to keep it that way as a symbol. Even though AI is great at many things, it's important to acknowledge that it still has a few imperfections.
